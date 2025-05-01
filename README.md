@@ -1,1 +1,0 @@
-# Kanon-Cole.github.io
